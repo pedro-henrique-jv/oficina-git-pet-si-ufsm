@@ -1,0 +1,1 @@
+Gostei muito da oficina, tanto na parte pratica quanto na teórica, foi tudo muito bem explicado.
